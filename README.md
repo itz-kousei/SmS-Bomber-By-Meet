@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @itz-kousei
+- 👀 I’m interested in Hacking and Web Developing.
+- 🌱 I’m currently learning Hacking.
+- 💞️ I’m looking to collaborate with Others.
+- 📫 How to reach me on Instagram: @__itz_meet_
